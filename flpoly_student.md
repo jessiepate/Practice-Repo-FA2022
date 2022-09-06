@@ -1,5 +1,4 @@
-## Student Name (or name you would preferred to be called)
-
+Jessie Pate 
 ### Fall 2022
 
 DSBA student at [Florida Polytechnic University](https://www.floridapoly.edu) currently enrolled in: 
